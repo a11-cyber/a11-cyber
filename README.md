@@ -1,0 +1,1 @@
+a cute girl smiling and wearing a red tradishional dress. Being so realistic that no one could guess that she is an ai.Her hairs should be dark brown and ees should be brown too.Her lips would be thin and cute.She should wear treditiona earings and foot wear too.Shw should walk towanrds the market while smiling towards the camera slightly.
